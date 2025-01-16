@@ -6,8 +6,8 @@ https://docs.google.com/presentation/d/1S1kprQ_YhXHK5Veg59UT1XnYWJZk-f9i950yzugx
 - ask me about spg i will GLADLY infodump. have spoken about it to 6 people, aiming for 8 billion!
 - im slash srs about the whisp2int 99.9% of the time i will most likely not see your messages. i also usually have my chat closed unless im actively having a conversation with someone., PLEASE JUST WHISPER PLEEAASSSEeeee
 - spg and homestuck mostly
-<p> Gunslinger - 3 </p>
-<p> Pirate - 6 </P>
+<p> Gunslinger - 4 </p>
+<p> Pirate - 7 </P>
 <p> Samurai - 6 </P>
 <p>(asking people.. which theyd rather be... heh)... </P>
 
