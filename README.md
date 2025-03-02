@@ -1,4 +1,4 @@
-# HARK! THE GONE-ROGUE-RODEO-CLOWN HAS SPOKEN!
+# now how can i make this a Steam Powered Giraffe: The Singing Musical Automaton reference...
 
 i dont feel like writing an about me just read this and. make yuor own assumptions
 https://docs.google.com/presentation/d/1S1kprQ_YhXHK5Veg59UT1XnYWJZk-f9i950yzugxZJU/edit?usp=sharing
