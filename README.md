@@ -3,7 +3,7 @@
 i dont feel like writing an about me just read this and. make yuor own assumptions
 https://docs.google.com/presentation/d/1S1kprQ_YhXHK5Veg59UT1XnYWJZk-f9i950yzugxZJU/edit?usp=sharing
 
-- ask me about spg i will GLADLY infodump. have spoken about it to ~8 people + an entire discord server, aiming for 8 billion!
+- ask me about spg i will GLADLY infodump. have spoken about it to ~9 people + an entire discord server, aiming for 8 billion!
 - im slash srs about the whisp2int 99.9% of the time i will most likely not see your messages. i also usually have my chat closed unless im actively having a conversation with someone., PLEASE JUST WHISPER PLEEAASSSEeeee
 - spg and homestuck mostly
 <p> Gunslinger - 5 </p>
