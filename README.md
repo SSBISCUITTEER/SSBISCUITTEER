@@ -8,7 +8,7 @@ i dont feel like writing an about me just read this and. make yuor own assumptio
 https://docs.google.com/presentation/d/1S1kprQ_YhXHK5Veg59UT1XnYWJZk-f9i950yzugxZJU/edit?usp=sharing
 
 - ask me about spg i will GLADLY infodump. have spoken about it to ~9 people + an entire discord server, aiming for 8 billion!
-- im slash srs about the whisp2int 99.9% of the time i will most likely not see your messages. i also usually have my chat closed unless im actively having a conversation with someone., PLEASE JUST WHISPER PLEEAASSSEeeee
+- its very ideal that you whisper me for when i am playing Horse County I am either offtab or making a horse skin. sometimes im spectating but yknow you can never be too safe (jst whisper)
 - spg and homestuck mostly
 - dni freaks and weirdos ... youll know who you are if you interact
 - i have 9 pages of hidden people because i hate this game . im sorry if im covering someone. its not always a personal thing ++ i dont remember the reason for why i hid every single person... plz dont kill me....
