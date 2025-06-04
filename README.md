@@ -4,6 +4,7 @@
 ![ew no hatchy gross](https://github.com/user-attachments/assets/189002e1-b7ea-4c7c-acd6-09032774db6d)
 **_ARTIST: AGENTSPAX ON DEVIANTARTDOTCOM_**
 
+# YEEHAW Bo)
 i dont feel like writing an about me just read this and. make yuor own assumptions
 https://docs.google.com/presentation/d/1S1kprQ_YhXHK5Veg59UT1XnYWJZk-f9i950yzugxZJU/edit?usp=sharing
 
@@ -16,6 +17,8 @@ https://docs.google.com/presentation/d/1S1kprQ_YhXHK5Veg59UT1XnYWJZk-f9i950yzugx
 - i have 9 pages of hidden people because i hate this game . im sorry if im covering someone. its not always a personal thing ++ i dont remember the reason for why i hid every single person... plz dont hire a hit on me
 - i get ANNOYED/anrgy EASILY!!!!!! its my special ability
 - shockingly, i like things other than SPG. you can find my other interests in the wild jungles of HoonisTown, but beware, I hear there are feral gunslingers and clowns roaming about. theyre not all as kind as me *looks off into the sunet*
+
+# A BRIEF INTERMISSION FROM THAT BORING CRAP.
 <p> Gunslinger - 5 </p>
 <p> Pirate - 7 </P>
 <p> Samurai - 6 </P>
