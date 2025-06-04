@@ -2,7 +2,7 @@
 
 
 ![ew no hatchy gross](https://github.com/user-attachments/assets/189002e1-b7ea-4c7c-acd6-09032774db6d)
-**_ARTIST: AGENTSPAX ON DEVIANTARTDOTCOM_** ![4](https://github.com/user-attachments/assets/1006a37f-c707-4f95-beac-135e41ff5a57)
+**_ARTIST: AGENTSPAX ON DEVIANTARTDOTCOM_** ![equius silly](https://github.com/user-attachments/assets/f83c4178-7b25-48ce-985b-ec7c8af00847)
 
 
 # YEEHAW Bo)
