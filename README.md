@@ -9,8 +9,10 @@ https://docs.google.com/presentation/d/1S1kprQ_YhXHK5Veg59UT1XnYWJZk-f9i950yzugx
 
 - ask me about spg i will GLADLY infodump. have spoken about it to ~9 people + an entire discord server, aiming for 8 billion! ![1](https://github.com/user-attachments/assets/f42bc792-8c9a-45fa-9476-f2dced847dfe)
 
-- its very ideal that you whisper me for when i am playing Horse County I am either offtab or making a horse skin. sometimes im spectating but yknow you can never be too safe (jst whisper)
-- dni freaks and weirdos ... youll know who you are if you interact. and >13 or 18<. yeah,
+- its very ideal that you whisper me for when i am playing Horse County I am either offtab or making a horse skin. sometimes im spectating but yknow you can never be too safe (jst whisper) ![2](https://github.com/user-attachments/assets/1ea16a70-cd2a-4026-861a-29e9c31a91d5)
+
+- dni freaks and weirdos ... youll know who you are if you interact. and >13 or 18<. yeah, ![3](https://github.com/user-attachments/assets/1fb07568-6a65-48f9-905a-49c3dea16fd3)
+
 - i have 9 pages of hidden people because i hate this game . im sorry if im covering someone. its not always a personal thing ++ i dont remember the reason for why i hid every single person... plz dont hire a hit on me
 - i get ANNOYED/anrgy EASILY!!!!!! its my special ability
 - shockingly, i like things other than SPG. you can find my other interests in the wild jungles of HoonisTown, but beware, I hear there are feral gunslingers and clowns roaming about. theyre not all as kind as me *looks off into the sunet*
