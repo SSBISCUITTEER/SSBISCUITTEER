@@ -19,6 +19,8 @@ https://docs.google.com/presentation/d/1S1kprQ_YhXHK5Veg59UT1XnYWJZk-f9i950yzugx
 - i get ANNOYED/anrgy EASILY!!!!!! its my special ability
 - shockingly, i like things other than SPG. you can find my other interests in the wild jungles of HoonisTown, but beware, I hear there are feral gunslingers and clowns roaming about. theyre not all as kind as me *looks off into the sunet*
 
+![HES SO COOOOOOOOOLLLL](https://github.com/user-attachments/assets/512d0d2b-692e-4e7f-b74c-2396f48f533a)
+
 # A BRIEF INTERMISSION FROM THAT BORING CRAP.
 <p> Gunslinger - 5 </p>
 <p> Pirate - 7 </P>
