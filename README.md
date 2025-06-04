@@ -1,5 +1,7 @@
 # now how can i make this a Steam Powered Giraffe: The Singing Musical Automatons reference...
 
+![ew no hatchy gross](https://github.com/user-attachments/assets/4f2d7c81-22f3-4e08-89a3-555fcfb687cd)
+
 i dont feel like writing an about me just read this and. make yuor own assumptions
 https://docs.google.com/presentation/d/1S1kprQ_YhXHK5Veg59UT1XnYWJZk-f9i950yzugxZJU/edit?usp=sharing
 
