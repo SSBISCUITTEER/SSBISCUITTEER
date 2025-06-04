@@ -1,7 +1,8 @@
 # now how can i make this a Steam Powered Giraffe: The Singing Musical Automatons reference...
 
 
-![ew no hatchy gross](https://github.com/user-attachments/assets/189002e1-b7ea-4c7c-acd6-09032774db6d)(https://www.deviantart.com/agentspax/art/Hatchy-s-Friends-366867160)
+![ew no hatchy gross](https://github.com/user-attachments/assets/189002e1-b7ea-4c7c-acd6-09032774db6d)
+**_ARTIST: AGENTSPAX ON DEVIANTARTDOTCOM_**
 
 i dont feel like writing an about me just read this and. make yuor own assumptions
 https://docs.google.com/presentation/d/1S1kprQ_YhXHK5Veg59UT1XnYWJZk-f9i950yzugxZJU/edit?usp=sharing
