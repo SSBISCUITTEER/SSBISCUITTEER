@@ -10,6 +10,9 @@ https://docs.google.com/presentation/d/1S1kprQ_YhXHK5Veg59UT1XnYWJZk-f9i950yzugx
 - ask me about spg i will GLADLY infodump. have spoken about it to ~9 people + an entire discord server, aiming for 8 billion!
 - im slash srs about the whisp2int 99.9% of the time i will most likely not see your messages. i also usually have my chat closed unless im actively having a conversation with someone., PLEASE JUST WHISPER PLEEAASSSEeeee
 - spg and homestuck mostly
+- dni freaks and weirdos ... youll know who you are if you interact
+- i have 9 pages of hidden people because i hate this game . im sorry if im covering someone. its not always a personal thing ++ i dont remember the reason for why i hid every single person... plz dont kill me....
+- i get ANNOYED/anrgy EASILY!!!!!! its my special ability
 <p> Gunslinger - 5 </p>
 <p> Pirate - 7 </P>
 <p> Samurai - 6 </P>
