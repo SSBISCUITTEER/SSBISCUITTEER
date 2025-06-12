@@ -13,7 +13,7 @@ https://docs.google.com/presentation/d/1S1kprQ_YhXHK5Veg59UT1XnYWJZk-f9i950yzugx
 
 - its very ideal that you whisper me for when i am playing Horse County I am either offtab or making a horse skin. sometimes im spectating but yknow you can never be too safe (jst whisper)
 
-- dni freaks and weirdos ... youll know who you are if you interact. and >13 or 18<. yeah,
+- dni freaks and weirdos ... youll know who you are if you interact. and <13 or 18>. pretend i never used the wrong symbols
 
 - i have 9 pages of hidden people because i hate this game . im sorry if im covering someone. its not always a personal thing ++ i dont remember the reason for why i hid every single person... plz dont hire a hit on me
 - i get ANNOYED/anrgy EASILY!!!!!! its my special ability
@@ -22,7 +22,7 @@ https://docs.google.com/presentation/d/1S1kprQ_YhXHK5Veg59UT1XnYWJZk-f9i950yzugx
 
 ![HES SO COOOOOOOOOLLLL](https://github.com/user-attachments/assets/512d0d2b-692e-4e7f-b74c-2396f48f533a)
 
-# A BRIEF INTERMISSION FROM THAT BORING CRAP.
+# ENOUGH OF THAT BORING CRAP.
 <p> Gunslinger - 5 </p>
 <p> Pirate - 7 </P>
 <p> Samurai - 6 </P>
