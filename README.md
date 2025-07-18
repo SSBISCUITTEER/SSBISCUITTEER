@@ -6,7 +6,7 @@
 
 
 # YEEHAW Bo)
-i dont feel like writing an about me just read this and. make yuor own assumptions
+if you dont wanna read this crap just look at this doc and make some assumptions
 https://docs.google.com/presentation/d/1S1kprQ_YhXHK5Veg59UT1XnYWJZk-f9i950yzugxZJU/edit?usp=sharing
 
 - ask me about spg i will GLADLY infodump. have spoken about it to ~9 people + an entire discord server, aiming for 8 billion!
@@ -24,7 +24,7 @@ https://docs.google.com/presentation/d/1S1kprQ_YhXHK5Veg59UT1XnYWJZk-f9i950yzugx
 
 # ENOUGH OF THAT BORING CRAP.
 <p> Gunslinger - 5 </p>
-<p> Pirate - 7 </P>
+<p> Pirate - 8 </P>
 <p> Samurai - 6 </P>
 <p>(asking people.. which theyd rather be... heh)... </P>
 
