@@ -13,7 +13,7 @@ https://docs.google.com/presentation/d/1S1kprQ_YhXHK5Veg59UT1XnYWJZk-f9i950yzugx
 
 - its very ideal that you whisper me for when i am playing Horse County I am either offtab or making a horse skin. sometimes im spectating but yknow you can never be too safe (jst whisper)
 
-- dni freaks and weirdos DUH! ive probably already blocked you though. also <13 or >18 unless youre already a friend. pretend i never used the wrong symbols
+- dniuf if youre younger than 13 or older than 18
 
 - i have 9 pages of hidden people because i hate this game . im sorry if im covering someone. its not always a personal thing ++ i dont remember the reason for why i hid every single person... plz dont hire a hit on me
 - i get ANNOYED/anrgy EASILY!!!!!! its my special ability
