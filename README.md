@@ -7,4 +7,4 @@
 <p> - i permahide things like hitlerskins and stuff adjacent to that</p>
 <p> - i temphide people i find annoying or weird (usually for a day) </p>
 <p> - i dont hide people <13 or >18, but i would appreciate it if you were to not interact. </p>
-<p> thats about it for that stuff :3 feel free to int , i like talking to people and making friends. yay </p>
+<p> thats about it for that stuff :3 feel free to int , i like talking to people and making friends. yay. ESPECIALL Y SPG FANS HAHAHHAHA HI </p>
