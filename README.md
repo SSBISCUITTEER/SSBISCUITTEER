@@ -3,3 +3,7 @@
  <p> SPG INT HELLO HELLO HEY THERE......</p>
 <p> i block people like crazy! if youre weird, in a fandom thats weird, or if im in your dni, ill block you. thats sorta the basic rules for me personally. sorry if im covering someone!</p>
 <p> fandoms i dislike are pretty basic. i might make a little rentry listing them all... for my own entertainment mostly. maybe ill link it (if the text is blue i decided to link it) </p>
+<p>for things not listed there...(if i decided to link it)</p>
+<p> - i permahide things like hitlerskins and stuff adjacent to that</p>
+<p> - i temphide people i find annoying or weird (usually for a day) </p>
+<p> - i dont hide people <13 or >18, but i would appreciate it if you were to not interact. </p>
