@@ -12,4 +12,5 @@ im awesome im awesome im awesome im awesome im awesome im awesome im awesome im 
 <p> AND for reasons why i block people unrelated to fandoms. read. keep reading </p>
 <p> - i permahide things like hitlerskins and stuff adjacent to that</p>
 <p> - i temphide people i find annoying or weird (usually for a day). if youre consistently weird i will permahide you too though </p>
+<p> - i also block people who fall under basic dni, which is always a sight to see on ponytown. especially if they arent trolls or 11 years old</p>
 <p> - i dont hide people <13 or >18, but i would appreciate it if you were to not interact. </p>
