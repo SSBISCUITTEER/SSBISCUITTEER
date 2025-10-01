@@ -9,7 +9,7 @@ im awesome im awesome im awesome im awesome im awesome im awesome im awesome im 
 
 # coolguy69. WHY did you hide me on pony.town?!
 <p> i block people like crazy! if youre weird, in a fandom thats weird, or if im in your dni, ill block you. thats sorta the basic rules for me personally. sorry if im covering someone!</p>
-<p> in regards to my fandoms i dislike, just look at the rentry to see my #bad fandoms list</p>
+<p> in regards to my fandoms i dislike, just ask me for my rentry listing them all waeuauh </p>
 <p> AND for reasons why i block people unrelated to fandoms. read. keep reading </p>
 <p> - i permahide things like hitlerskins and stuff adjacent to that</p>
 <p> - i temphide people i find annoying or weird (usually for a day). if youre consistently weird i will permahide you too though </p>
